@@ -6,19 +6,19 @@ Four completely different stories — each hitting different feelings: love, fea
 
 ## 📖 The Stories
 
-### ❤️ The Last Cigarette 
+### 1.❤️ The Last Cigarette 
 A deeply moving love story about memories, loss, and the final cigarette that burns with their last promises.
----
 
-### The Wrong Number 
+
+### 2.The Wrong Number 
 Someone is watching you. They know what you’re doing right now... and even what you’ll do tomorrow.
----
 
-### The Ghost Who Failed JEE
+
+### 3.The Ghost Who Failed JEE
 The most annoying ghost in Bharat — a frustrated JEE aspirant who failed horribly and now haunts students by teaching at 3 AM.
----
 
-### He Carved Off His Own Reflection ( NSFL )
+
+### 4.He Carved Off His Own Reflection ( NSFL )
 Extremely graphic body horror. Flesh, mirrors, blood, and insanity. Not for the faint-hearted.
 
 ## ✨ Features
